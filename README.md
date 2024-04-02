@@ -4,6 +4,8 @@ https://www.loom.com/share/9a4c8eca197c495999ef5f9599d54b32?sid=be29b28b-b818-4e
 #### Connect and Collaborate:
 Includes contact information and links to social profiles, fostering networking opportunities.
 Open to collaboration or discussions on potential projects and opportunities.
+
+
 ![image](https://github.com/harshnayangithub/Portfolio-Website/assets/126700987/52893ec9-5dd9-46a5-9191-d61dd6111071)
 ![image](https://github.com/harshnayangithub/Portfolio-Website/assets/126700987/ee9df7fa-416a-4f3f-9020-07bedbaad7bb)
 ![iimage](https://github.com/harshnayangithub/Portfolio-Website/assets/126700987/6726548c-07b1-4e78-b4cc-4db1227b44fa)
