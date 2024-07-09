@@ -9,3 +9,8 @@ Open to collaboration or discussions on potential projects and opportunities.
 
 
 ![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/81d01bb3-1aec-40ae-959e-19146112e911)
+![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/7dc0c3ff-60cd-4b3f-ad3a-aa1a0f5ae306)
+![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/a4c18779-1b1d-4878-a16e-fdccc8fc09d8)
+![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/303cbfc5-aef1-4652-b00d-f5b2e6dfb236)
+![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/26e84853-7524-4d81-8dd3-81b2c104b841)
+![image](https://github.com/harshnayangithub/Dev-Ops/assets/126700987/b2c387b4-0a0a-45c6-ac38-767e96916fee)
